@@ -14,7 +14,7 @@
 
 - 2 colheres (sopa) de maionese
 
-- 1 colher de manteiga
+- 1 colher de manteiga.
 
 - 1/2 [copo de ketchup](https://blog.tudogostoso.com.br/cardapios/ketchup-caseiro/)
 
